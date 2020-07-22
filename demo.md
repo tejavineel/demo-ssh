@@ -1,1 +1,1 @@
-Lorem Ipsum is simply dummy something have to be changed and typesetting industry. Lorem Ipsum has been the industry's standard dummy text ever since the 1500s, when an unknown inline changes to be done here... and scrambled it to make a type specimen book.
+Lorem Ipsum is simply dummy something have to be changed and typesetting industry. Lorem Ipsum has been the industry's standard dummy text ever since the 1500s, when an unknown inline changes to be done here... and scrambled it to make a type book.
